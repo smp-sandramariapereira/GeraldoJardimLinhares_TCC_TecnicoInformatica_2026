@@ -1,0 +1,1 @@
+# GeraldoJardimLinhares_TCC_TecnicoInformatica_2026
